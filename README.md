@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @majsterklepka
 - 👀 I’m interested in ham, electronics, programming
-- 🌱 I’m currently learning music ??
+- 🌱 I’m currently study ... ??
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... at email starywandal[at]onet.pl
 
